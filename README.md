@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @COMPANYSKULLS
+- 👋 Hi, I’m @SKULLS
 - 👀 And I'm new
 - 💡and I'm learning
 
